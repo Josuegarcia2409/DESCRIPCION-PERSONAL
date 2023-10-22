@@ -1,5 +1,6 @@
 # Carlos Josue
-[Mi Foto de Perfil](https://mailutecedusv-my.sharepoint.com/:i:/g/personal/1527232022_mail_utec_edu_sv/EYOu4-8QVq1KsO7AkaRt4pcBBP-rN8bHhIFcTn26J6709Q?e=es2JlA)
+[Mi Foto de Perfil]![ce61f2aa-1cbc-48b7-9a86-54a876e979df](https://github.com/Josuegarcia2409/DESCRIPCION-PERSONAL/assets/148664477/cfd261bc-7565-41f8-916b-3621c668eedb)
+
 
 ¡Hola soy Carlos! Soy un estudiante de la Universidad Tecnologica, llevo segundo año en la universidad , tengo 21 años, la carrera la cual estoy estudiando es Adm. de empresas con enfasis en computacion .
 
